@@ -4,4 +4,4 @@ Medzone is a National HGH and Testosterone replacement clinic with a top-rated t
 Work time: Mn -Fr 9 AM - 6 PM
 Phone: (818) 232 5775
 E-mail: medzonecom@gmail.com
-https://medzone.center/
+https://medzone.clinic/
